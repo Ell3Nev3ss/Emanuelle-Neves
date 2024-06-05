@@ -11,5 +11,6 @@ VOCÊ PODE ENTRAR EM CONATATO COMIGO  📫
   00001099686015sp@al.educacaos.sp.gov.br
 
   
-![Uploading image.png…]()
+![image](https://github.com/Ell3Nev3ss/Emanuelle-Neves/assets/171840780/ab32d07a-8909-49eb-ba41-740631046103)
+
 
